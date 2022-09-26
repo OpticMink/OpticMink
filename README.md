@@ -1,5 +1,4 @@
-- 👋 Hi, I’m OpticMink
-- 👀 I’m interested in VR games and Minecraft.
-- 🌱 I’m currently learning nothing.
-- 💞️ I’m looking to collaborate on nothing.
-- 📫 How to reach me: I'm not telling you. But if you meet OpticMink f9f7 on VrChat that's me.
+- 👋 Hi, I’m Mink. (-[]-)
+- My Xbox username is OptiMink (My name on here with no "c")
+- My Playstation username is Sgt_Pancakes00
+- My Twitch is GustaviousFring https://www.twitch.tv/GustaviousFring
