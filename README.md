@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mink. (-[]-)
-- My Xbox username is OptiMink (My name on here with no "c")
-- My Playstation username is Sgt_Pancakes00
-- My Twitch is GustaviousFring https://www.twitch.tv/GustaviousFring
+- 👋 Hi, I’m Mink. <(OwO)>
+- My Xbox username is same as this.
+- I like Roblox I guess.
+- Big Paws = Big Cutie
