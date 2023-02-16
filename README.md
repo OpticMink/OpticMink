@@ -6,7 +6,6 @@
 - Kind of a geek in some fields. (Sorry.)
 - I like talking to people.
 - I hate talking to Undertale/Deltarune fanboys/girls. (Like seriously, the game is dead. Get over it, it wasn't even all that.)
-- Since this is the 9th entry in this bio, I should mention that one of my top 10 numbers is 9. (The others being: 1, 2, 3, 4, 5, 6, 7, 8, and 0.)
 - Do not recommend a story game that doesn't have violence. I will not play it.
 - FPS games fan. (Not that good at them though.)
 - End of bio. (Goodbye!)
